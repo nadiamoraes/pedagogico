@@ -1,3 +1,4 @@
 # Pedagógico
 
-Projeto pedagógico.
+Projeto pedagógico, by Nadia.
+
